@@ -3,6 +3,9 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
+you can do it in many ways 
+but the propoer way is by discord
+ at bedrodactyltestbg#5721
 
 <!---
 bedrockmasterbg/bedrockmasterbg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
